@@ -1,0 +1,1 @@
+# graphicdesign-debatecompetition-certificate-
